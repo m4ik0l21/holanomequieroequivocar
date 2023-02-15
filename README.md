@@ -1,2 +1,1 @@
-# holanomequieroequivocar
-que todo salga bien... es posible
+si no, es facil
